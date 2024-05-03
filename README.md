@@ -9,7 +9,7 @@ Per mantenere una coerenza nel progetto, è importante abbiamo seguito queste re
 
 - Il file ha il nome della fiaba in kebab case (es: it-cappuccetto-rosso).
 - Il testo è diviso in paragrafi.
-- I diagoli cominciano dopo i due punti e sono tra virgolette in corsivo. (esempio: "_dialogo_")
+- I diagoli cominciano dopo i due punti e sono tra virgolette in corsivo e grassetto. (esempio: "__dialogo__")
    
 
 ## Traduzione
