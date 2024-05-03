@@ -1,10 +1,10 @@
 # Laboratorio Gruppo 7
 
-Benvenuti nel repository del Laboratorio Gruppo 7! Questo progetto è dedicato alla collaborazione tra i membri del gruppo per creare una raccolta di racconti. Qui troverete le linee guida e le regole da seguire durante lo sviluppo del progetto.
+Benvenuti nel repository del Laboratorio Gruppo 7! Questo progetto è dedicato alla collaborazione tra i membri del gruppo per creare una raccolta di racconti. Qui troverete le linee guida che abbiamo seguito durante lo sviluppo del progetto.
 
 ## Struttura dei Racconti
 
-Per mantenere una coerenza nel progetto, è importante seguire queste regole per la struttura dei racconti:
+Per mantenere una coerenza nel progetto, è importante abbiamo seguito queste regole per la struttura dei racconti:
 
 - **Indentazione**: Utilizzare uno stile di indentazione uniforme per il codice.
 - **Ritorno a capo**: Fare ritorno a capo dopo ogni paragrafo per migliorare la leggibilità.
@@ -26,9 +26,9 @@ Ogni membro del gruppo avrà un ruolo specifico nel progetto:
 ## Membri del Gruppo
 
 - Alessandro Bruzzese (@Bruzzii): Manager
-- Nome2 (@nome2): Ruolo
-- Nome3 (@nome3): Ruolo
+- Mattia Forneron (@fornou): Collaboratore
+- Da definire (@nome): Ruolo
 
 ## Guida alla Collaborazione
 
-Assicurarsi di seguire queste regole e di lavorare in modo collaborativo per garantire il successo del progetto. Per qualsiasi domanda o chiarimento, non esitate a contattare il manager del gruppo. Buon lavoro!
+Ci siamo assicurati di seguire queste regole e di lavorare in modo collaborativo per garantire il successo del progetto. Per qualsiasi domanda o chiarimento, non esitate a contattare il manager del gruppo. Buon lavoro!
