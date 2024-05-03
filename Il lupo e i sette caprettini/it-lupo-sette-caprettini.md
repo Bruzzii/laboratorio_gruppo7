@@ -8,7 +8,8 @@ Poco dopo la vecchia capra tornò dal bosco. Ah, cosa le toccò vedere! La porta
 Alla fine uscì tutt'afflitta e il caprettino più piccolo corse fuori con lei. Quando arrivò nel prato, ecco il lupo sdraiato sotto l'albero, e russava tanto da far tremare i rami. L'osservò da tutte le parti e notò che nella pancia rigonfia qualcosa si moveva e si dimenava. "Ah, Dio mio," pensò, "che siano ancor vivi i miei poveri piccini, che il lupo ha divorato per cena?" Disse al capretto di correre a casa e di prendere forbici, ago e filo. Poi tagliò la pancia del mostro; e al primo taglio, un capretto mise fuori la testa, poi, via via che tagliava, saltaron fuori tutti e sei ed erano tutti vivi e stavano benone; perché il mostro per ingordigia li aveva ingoiati interi. Che gioia fu quella! Si strinsero alla loro cara mamma e saltellavano contenti come pasque. Ma la vecchia disse: "Andate, ora; e cercate delle pietre da riempir la pancia a questo dannato prima che si desti." Allora i sette caprettini trascinarono in gran fretta le pietre e ne cacciarono in quella pancia quante ne poterono portare. Poi la vecchia la ricucì in un baleno, sicché il lupo non se ne accorse e non si mosse neppure.
 Finalmente, quando ebbe fatto una bella dormita, il lupo si alzò, e perché le pietre nello stomaco gli davano una gran sete, volle andare a una fontana. Ma quando cominciò a muoversi, le pietre si misero a cozzare nella pancia con gran fracasso. Allora gridò:
 "Romba e rimbomba
+
 Nella mia pancia credevo fossero
 Sei caprettini, sono pietroni
-Belli e buoni."
-E quando arrivò alla fontana e si chinò sull'acqua per bere, il peso delle pietre lo tirò giù, e gli toccò miseramente affogare. A quella vista i sette capretti vennero di corsa, gridando: "Il lupo è morto! il lupo è morto!" E con la loro mamma ballarono di gioia intorno alla fontana.
+Belli e buoni.___"
+E quando arrivò alla fontana e si chinò sull'acqua per bere, il peso delle pietre lo tirò giù, e gli toccò miseramente affogare. A quella vista i sette capretti vennero di corsa, gridando: ___"Il lupo è morto! il lupo è morto!___" E con la loro mamma ballarono di gioia intorno alla fontana.
