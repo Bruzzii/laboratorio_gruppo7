@@ -1,0 +1,39 @@
+# Blanche-Neige
+
+Il était une fois Blanche-Neige, une princesse qui vivait avec son père le Roi et une marâtre aussi belle que méchante. Grimilde, la marâtre de Blanche-Neige, avait réussi à épouser le Roi parce qu'elle était en réalité une sorcière, et elle lui avait jeté un sort.
+
+Depuis ce jour, à la cour du château, tout était devenu plus triste. Grimilde exigeait d'être servie et vénérée en toute chose, et elle avait fait en sorte que Blanche-Neige soit considérée comme peu plus qu'une servante ordinaire. Mais Blanche-Neige supportait même les pires impolitesses parce que, pour retrouver le bonheur, il lui suffisait de se rappeler sa chère maman qui n'était plus là.
+
+Grimilde, quant à elle, possédait un miroir magique, qui pouvait répondre à toutes ses questions, mais elle n'en posait qu'une seule : "***Miroir, mon beau miroir, dis-moi qui est la plus belle du royaume ?***" - demandait-elle chaque matin dès son réveil. Et le miroir, qui était un miroir magique sérieux, lui répondait la vérité. "***Ma dame, vous êtes la plus belle de toutes.***" Et Grimilde souriait malignement...
+
+Mais Blanche-Neige devenait chaque jour plus belle et Grimilde était envieuse, c'est pourquoi elle lui faisait faire les tâches les plus humiliantes, espérant ainsi qu'elle reste moins belle qu'elle. Jusqu'à ce qu'un jour, après la question habituelle de Grimilde, le miroir réponde : "***Ma dame, c'est Blanche-Neige la plus belle du royaume...***" Grimilde commença à crier furieuse et faillit briser le miroir de colère. Cette nuit-là, elle ne ferma pas l'œil, et elle élabora un plan pour faire disparaître Blanche-Neige, afin de rester la plus belle du royaume.
+
+Le matin venu, elle appela le chasseur, son serviteur, et lui ordonna d'emmener Blanche-Neige dans la forêt et de lui rapporter son cœur, comme preuve de sa mort. Le pauvre chasseur obéit à contre-cœur.
+
+***"Où m'emmenez-vous, monsieur le chasseur ?***" - demanda Blanche-Neige, mais le chasseur resta silencieux et baissa les yeux. Lorsqu'ils furent enfin dans la profonde forêt, ils s'arrêtèrent. Le chasseur aurait dû prendre son fusil, mais il aimait trop Blanche-Neige pour lui faire du mal. ***"Que se passe-t-il, monsieur le chasseur ?***" - demanda Blanche-Neige ? ***"Grimilde veut être la plus belle du royaume, et donc elle m'a donné l'ordre de te conduire ici dans la forêt et..."*** Mais le chasseur n'arriva pas à finir sa phrase. Il pensa qu'il suffisait de laisser la fille seule là dans la forêt, les loups se chargeraient du reste. Il salua Blanche-Neige d'un geste de la main, et avec les larmes aux yeux, il s'enfuit.
+
+Blanche-Neige, qui n'avait pas encore bien compris ce qui se passait et pourquoi elle avait été amenée là, commença à regarder autour d'elle, effrayée, elle n'avait jamais été seule dans la profonde forêt. Elle commença à courir à droite et à gauche, sans pouvoir retrouver le chemin du château, jusqu'à ce qu'elle tombe sur une petite maison.
+
+Effrayée et fatiguée, elle frappa à la porte, mais personne n'ouvrit. Elle écarta doucement la porte en demandant la permission, mais personne ne répondit. Elle se retrouva dans une minuscule cuisine, avec une petite table et sept petites chaises tout autour. Sur la table, il y avait du pain et de l'eau. Blanche-Neige en prit un peu pour apaiser sa faim et sa soif, puis elle se mit à explorer la petite maison.
+
+Elle se retrouva dans une chambre avec sept petits lits. Elle était vraiment émerveillée et s'assit sur l'un d'eux, mais de fatigue, elle s'assoupit.
+
+Un grand bruit venant de la cuisine la réveilla. Il était déjà tard et des voix d'hommes venant de l'autre pièce se demandaient qui avait bien pu entrer chez eux. Ainsi Blanche-Neige se précipita-t-elle dans la cuisine. ***"Et toi, qui es-tu ? !***" - s'écrièrent les sept petits hommes en la voyant arriver. ***"Je suis Blanche-Neige, veuillez m'excuser d'être entrée chez vous sans permission mais..."*** - et Blanche-Neige leur raconta toute son histoire triste.
+
+Lorsqu'elle eut fini, les sept nains se regardèrent et décidèrent à l'unanimité : "***Ne t'en fais pas, Blanche-Neige, reste chez nous, tu es la bienvenue. Nous t'offrirons refuge et protection contre la méchante marâtre.***" ***"Je vous remercie mes chers nains !***" - dit Blanche-Neige - ***"Je saurai vous rendre la pareille, ne vous inquiétez pas !***" - et elle se mit immédiatement à préparer le dîner et à ranger la maison. Les sept nains, qui s'appelaient Grincheux, Dormeur, Joyeux, Timide, Prof, Atchoum et Simplet, ne pouvaient être plus heureux.
+
+Le lendemain matin, Grimilde se leva toute joyeuse en pensant s'être débarrassée de Blanche-Neige, et demanda à son miroir : "***Miroir, mon beau miroir, dis-moi qui est la plus belle du royaume ?***" Mais le miroir répondit : "***Ma dame, c'est Blanche-Neige la plus belle du royaume, et maintenant elle vit dans la forêt avec sept petits nains.***"
+
+***"Ce n'est pas possible !***" - cria Grimilde - ***"je l'ai fait emmener dans la forêt par le chasseur, regarde, voici son cœur !***" - et elle montra un coffret en bois. ***"Ce dans le coffret, c'est le cœur d'un petit animal !***" - lui répondit le miroir. Grimilde cria furieuse contre le miroir et le chasseur infidèle, et décida qu'elle réglerait elle-même la question. Elle se précipita dans les cachots du château où elle cachait son laboratoire de potions magiques et commença à concocter des sortilèges.
+
+Pendant ce temps, Blanche-Neige était toute heureuse que les sept nains l'aient accueillie comme une sœur. Tandis qu'ils travaillaient le jour dans la mine voisine, elle préparait le déjeuner, rangeait la maison et lavait le linge. Et le soir, ils s'amusaient beaucoup à se raconter des histoires et des comptines.
+
+Mais un jour, à la porte de la petite maison, frappa une vieille dame aux cheveux blancs et aux vêtements en lambeaux. ***"Bonjour mamie, que puis-je faire pour vous ?***" ***"Bonjour ma chère jeune fille, je suis une pauvre vieille femme qui vend des pommes, en veux-tu une ?***" - dit la vieille. ***"Vos pommes rouges sont magnifiques, mais je n'ai pas d'argent pour vous payer…"*** - répondit Blanche-Neige. La vieille sourit et lui dit : ***"Tu es si belle, ma jeune fille, que je t'en offre une, tiens, mange-la donc.***" Blanche-Neige prit la pomme et la porta à sa bouche… Mais dès qu'elle en mordit un morceau, Blanche-Neige s'effondra inconsciente par terre !
+
+La vieille se mit alors à rire, rire et rire, et peu après dans un "puff" elle se transforma en Grimilde qui s'était déguisée en vieille et avait empoisonné la pomme. Ainsi, tandis que Grimilde disparaissait dans la forêt, Blanche-Neige gisait au sol comme morte. Le soir, les sept nains rentrèrent à la maison, et en la voyant ainsi, ils se désespérèrent et pleurèrent toute la nuit.
+
+Le lendemain, ils n'eurent pas le cœur à l'enterrer tant elle était encore belle, et ils lui préparèrent un cercueil de cristal qu'ils placèrent dans une clairière. Ils la laissèrent là en pleurant, en compagnie des écureuils et des oiseaux.
+
+Vers le soir, le prince du royaume voisin, Florian, passa par là, rentrant chez lui après une partie de chasse. Intrigué par ce cercueil de cristal avec une fille dedans, il s'approcha, et quand il vit la beauté de Blanche-Neige, il en tomba immédiatement amoureux.
+
+Il ne savait pas que Blanche-Neige avait été empoisonnée par Grimilde et pensait simplement qu'elle se reposait d'un profond sommeil. Ainsi, il la prit dans ses bras. Mais juste à ce moment-là, le petit morceau empoisonné de la pomme que Blanche-Neige avait encore dans la bouche, tomba par terre. Le prince Florian l'embrassa, et Blanche-Neige, qui n'avait plus le poison dans la bouche, commença peu à peu à reprendre ses esprits et à se réveiller. Florian aussi était un beau jeune homme et Blanche-Neige était heureuse de se retrouver dans ses bras.
