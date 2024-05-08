@@ -1,4 +1,4 @@
-# The Wolf and the Seven Little Kids
+# The Wolf and the Seven Little Goats
 
 Once upon a time, there was an old goat who had seven little kids, and she loved them as a mother loves her children. One day, she thought of going into the woods to gather some food for dinner; she called all seven of them and said: "***Dear little ones, I want to go to the woods; beware of the wolf; if he comes, he will gobble you all up in one bite. That scoundrel often disguises himself, but you'll recognize him immediately by his hoarse voice and black paws."*** The little kids said: "***Dear mother, we'll be very careful, you can go without worry."*** The old goat bleated and set off confidently.
 
